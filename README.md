@@ -1,0 +1,2 @@
+# janganpergacidariaku
+janganpergacidariaku
